@@ -3,7 +3,7 @@
 <table>
   <tr>
     <th>
-      <img src="https://media1.tenor.com/m/y4qwh-HowzoAAAAC/benrey-benry.gif" alt="" width="200"/><br>
+      <img src="https://files.catbox.moe/pnqqw8.PNG" alt="art by: @gormlessgod" width="450"/><br>
 
 
 </th>
