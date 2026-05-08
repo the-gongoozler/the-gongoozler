@@ -12,7 +12,7 @@
 
 [atabook](https://coruscants.atabook.org/) + [info](https://rentry.co/starlighthaze)
 
-$${\color{lightblue}im \space just \space typing \space shit \space maan... }$$
+$\color{lightblue}{\textsf{im just typing shit man... }}$ <br>
 
  ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=the-gongoozler)
 
