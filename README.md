@@ -13,6 +13,11 @@
 [atabook](https://coruscants.atabook.org/) + [info](https://rentry.co/starlighthaze)
 
 $\color{lightblue}{\textsf{im just typing shit man... }}$ <br>
+<br>
+$\color{red}{\textsf{⛔ - IWEC / Not Very Social }}$ <br>
+$\color{gold}{\textsf{🌙 - Usual Status. Feel free to int, may be offtab }}$ <br>
+$\color{green}{\textsf{💬/🟢 - Hardly use, but still same as above }}$ <br>
+<br>
 
  ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=the-gongoozler)
 
