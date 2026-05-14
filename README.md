@@ -12,7 +12,7 @@
 
 $\color{lightblue}{\textsf{im just typing shit man... }}$ <br>
 <br>
-[Atabook](https://coruscants.atabook.org/)⠀⠀⠀[Info](https://rentry.co/starlighthaze)⠀⠀⠀[Send Gimmicks](https://zrankroom.straw.page/)
+[Atabook](https://coruscants.atabook.org/)⠀⠀⠀[Info](https://rentry.co/starlighthaze)⠀⠀⠀[Strawpage](https://benreyschronicles.straw.page/)
 
 <br>
 
