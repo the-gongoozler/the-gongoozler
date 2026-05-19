@@ -10,7 +10,7 @@
 </tr>
 </table>
 
-$\color{lightblue}{\textsf{im just typing shit man... }}$ <br>
+$\color{#0527FC}{\textsf{i was s'pose to be nice but you forced me to be BAAAD so i'm gonna be baaaad. Friend. }}$ <br>
 <br>
 [Atabook](https://coruscants.atabook.org/)⠀⠀⠀[Info](https://rentry.co/starlighthaze)⠀⠀⠀[Strawpage](https://benreyschronicles.straw.page/)
 
