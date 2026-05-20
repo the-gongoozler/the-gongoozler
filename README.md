@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://files.catbox.moe/vz29zw.png" alt="art by: @gormlessgod" width="650"/><br>
+<img src="https://files.catbox.moe/vz29zw.png" alt="art by: @frenreyworld" width="650"/><br>
 
 
 $\color{#0527FC}{\textsf{i was s'pose to be nice but you forced me to be BAAAD so i'm gonna be baaaad. Friend. }}$ <br>
