@@ -1,14 +1,7 @@
 <div align="center">
 
-<table>
-  <tr>
-    <th>
-      <img src="https://files.catbox.moe/pnqqw8.PNG" alt="art by: @gormlessgod" width="450"/><br>
+<img src="https://files.catbox.moe/vz29zw.png" alt="art by: @gormlessgod" width="650"/><br>
 
-
-</th>
-</tr>
-</table>
 
 $\color{#0527FC}{\textsf{i was s'pose to be nice but you forced me to be BAAAD so i'm gonna be baaaad. Friend. }}$ <br>
 <br>
