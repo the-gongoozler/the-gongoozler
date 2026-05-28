@@ -7,6 +7,8 @@
 <br>
 [Atabook](https://coruscants.atabook.org/)⠀⠀⠀[Info](https://rentry.co/starlighthaze)⠀⠀⠀[Strawpage](https://benreyschronicles.straw.page/)
 
+Sign my ATA / SP ^-^
+
 <br>
 
 $\color{red}{\textsf{⛔ - IWEC / Not Very Social }}$ <br>
