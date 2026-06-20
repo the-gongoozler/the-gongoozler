@@ -9,8 +9,7 @@ $${\color{#696fbb} "\\  I\color{#7970b3}S\ DE\color{#8d78ae}STRU\color{#c894d5}C
 $${\color{#696fbb} RE\color{#7970b3}ALLY\color{#8d78ae} \ NEC\color{#c894d5}ESSARY}$$
 $${\color{#696fbb} FO\color{#7970b3}R\ C\color{#8d78ae}REA\color{#c894d5}TION?}$$
 $${\color{#696fbb} CA\color{#7970b3}USE\color{#8d78ae}\ IF \ S\color{#c894d5}O, \ THEN}$$
-$${\color{#696fbb} THA\color{#7970b3}T'S\color{#8d78ae}⠀\ S\color{#c894d5}OO}$$
-$${\color{#696fbb} ANN\color{#7970b3}OY \color{#8d78ae}I\color{#c894d5}NG \ "}$$
+$${\color{#696fbb} THA\color{#7970b3}T'S\color{#8d78ae}\ SOO\ A\color{#c894d5}NNOYING\ "}$$
 
 <br>
 
